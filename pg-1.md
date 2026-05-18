@@ -1,6 +1,6 @@
 So this is the first note or page whatever you want to call it doesn’t really matter here you gonna learn the very much basics to get the gist of it. Note that nothing here is explained in details so just keep reading (I will either put the sources right next to the sentences or at the end) 
 - - -
-- [ ] Before you read this… this is not a textbook and I am not a professor. I’m just someone(16yo duck) with ADHD who fell down a rabbit hole and decided to document it properly. Everything here is sourced and real. The humor is mine. The brutal truths of the world. This research contains references to extreme violence, shock content and dark history not for shock value but because sanitizing this topic would be disrespecting the reality of it. Read with an open mind or don’t read at all twin😭🙏
+Before you read this… this is not a textbook and I am not a professor. I’m just someone(16yo duck) with ADHD who fell down a rabbit hole and decided to document it properly. Everything here is sourced and real. The humor is mine. The brutal truths of the world. This research contains references to extreme violence, shock content and dark history not for shock value but because sanitizing this topic would be disrespecting the reality of it. Read with an open mind or don’t read at all twin😭🙏
 - - -
 
 #founders 
